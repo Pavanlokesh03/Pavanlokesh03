@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently studying BCA
+Iam a BCA Graduate
 
 
 ## 🌐 Socials:
